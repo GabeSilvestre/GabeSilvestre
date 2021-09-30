@@ -1,4 +1,4 @@
-Olá Eu sou o Gabriel 
+Olá,  Sou  Gabriel Silvestre
 
 - I’m currently learning ...
 - Estou procurando meu primeiro emprego na área
